@@ -20,3 +20,8 @@ Risk Management: Implements risk management protocols to minimize potential loss
 
 **Contributions**
 Contributions are welcome! If you have improvements or feature suggestions, feel free to open an issue or submit a pull request.
+
+
+**If you are interested in buying the bot DM at telegram: t.me/ArtemysSclaping
+
+The price is NON NEGOCIABLE 2000$.**
